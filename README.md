@@ -1,4 +1,4 @@
-![Fuck](IMG_20250702_140345.jpg)
+![Fuck](IMG_20261015_164844.jpg)
 # Fuck
 
 **Titel:** Fuck  
